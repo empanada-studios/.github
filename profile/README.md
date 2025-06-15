@@ -1,3 +1,2 @@
-# Que
-so
-Uso esto para tener proyectos aparte de mi :v
+# Empandas Studios
+Me gustan las empanadas
